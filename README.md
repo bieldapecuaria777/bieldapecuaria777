@@ -1,7 +1,6 @@
 ## Hi there 👋
 ## BIelzin do boi
 ## Made in Roça
-## SOU GAY!!!!!!!!
 ## amo Thalysson
 ## AMO A Pablo Vitar
 
